@@ -18,8 +18,8 @@ https://mantavya.co.in/collections/green-tissue-silk-sarees
 
 ## Related Collections
 
-- Tissue Silk Sarees<img width="713" height="951" alt="godh bharai" src="https://github.com/user-attachments/assets/1a32d466-11db-4255-b30f-87d556f395bb" />
-<img width="713" height="951" alt="pichhwai" src="https://github.com/user-attachments/assets/572c37a4-f111-4895-8b17-0853b5c3c62c" />
+<img width="713" height="951" alt="pichhwai" src="https://github.com/user-attachments/assets/6ecf29e6-a14a-43d8-b45c-f311dd72005d" />
+<img width="713" height="951" alt="godh bharai" src="https://github.com/user-attachments/assets/22a8c630-80cd-4a9b-b88f-5c0304702c95" />
 
  https://mantavya.co.in/collections/green-tissue-silk-sarees
 
