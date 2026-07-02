@@ -21,8 +21,6 @@ https://mantavya.co.in/collections/green-tissue-silk-sarees
 <img width="713" height="951" alt="pichhwai" src="https://github.com/user-attachments/assets/6ecf29e6-a14a-43d8-b45c-f311dd72005d" />
 <img width="713" height="951" alt="godh bharai" src="https://github.com/user-attachments/assets/22a8c630-80cd-4a9b-b88f-5c0304702c95" />
 
- https://mantavya.co.in/collections/green-tissue-silk-sarees
-
 - Banarasi Sarees
 https://mantavya.co.in/collections/green-tissue-silk-sarees
 
